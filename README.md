@@ -1,6 +1,6 @@
 # ***Bem-Vindo(a) ao meu Perfil💖*** 
 ![](https://github.com/Ashleyycamargo/Ashleyycamargo/blob/main/Lofi.gif)
-## **- Eu sou a Ashley Camargo💖** 
+## **Eu sou a Ashley Camargo💖** 
 
 ## insta @ashleyycamargo💋
 ## Corintiana Roxa.
